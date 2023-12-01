@@ -43,7 +43,7 @@ Linkedin- https://linkedin.com/in/dhanushlingan
 
 Kaggle- https://www.kaggle.com/dhanushlingan
 
-### 🌱 Connect with AI Tamil Nadu, If you are a shoshin 🥷 and need a collaborationc
+### 🌱 Connect with AI Tamil Nadu, If you are a shoshin 🥷 and need a collaboration
 
 - Visit us on https://aitamilnadu.org/
 - [Our Team](https://aicbe.org/team)
